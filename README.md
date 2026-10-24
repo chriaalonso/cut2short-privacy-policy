@@ -1,0 +1,1 @@
+# cut2short-privacy-policy
